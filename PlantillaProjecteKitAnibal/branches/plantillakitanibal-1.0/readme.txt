@@ -1,1 +1,1 @@
-Funcionament Projecte Plantillaa
+Funcionament Projecte Plantilla
